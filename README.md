@@ -1,4 +1,4 @@
-# 🌌 ECHOES — Your Life, Reconstructed
+# 🌌 ECHOES — Your Life, in Receipts
 
 > **From scattered moments to one connected story.**
 
